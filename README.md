@@ -1,2 +1,0 @@
-# laws.africa
-laws.africa
